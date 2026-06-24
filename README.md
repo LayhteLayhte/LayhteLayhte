@@ -14,4 +14,4 @@ playing in pt I in w2i , and hvy ! ! ^ _ ^
 ☆ 
    .      *
 
-<img width="500" height="281" alt="7298bd0ed06e9d270ae7654ac421074d" src="https://github.com/user-attachments/assets/5eed286d-d111-4e13-8230-3f588bb80d7b" />
+<img width="500" height="209" alt="sanga" src="https://github.com/user-attachments/assets/82660dab-7078-468d-913b-fbfc5ec34a63" />
