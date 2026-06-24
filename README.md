@@ -11,7 +11,6 @@ im 15 year old!
 
 playing in pt I in w2i , and hvy ! ! ^ _ ^
 
-☆ 
-   .      *
+☆ .  * (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠)⁠✧⁠* . °. ｡⁠*⁠♡. ° . ｡ . * .
 
 <img width="500" height="209" alt="sanga" src="https://github.com/user-attachments/assets/82660dab-7078-468d-913b-fbfc5ec34a63" />
