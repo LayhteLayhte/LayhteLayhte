@@ -1,8 +1,11 @@
-<img width="736" height="414" alt="Background_shelly" src="https://github.com/user-attachments/assets/c0626f8d-e6f6-404a-b721-52eaf49aff09" />
+<img width="640" height="347" alt="download (13)" src="https://github.com/user-attachments/assets/5a061527-aac1-4779-99d5-49dc1779c1c8" />
+
 
 ⏔⏔⏔⏔⏔⏔ ෆ ⏔⏔⏔⏔⏔⏔
 
-I Love You shelly ! ! 
+I Love ur shelly ! ! 
+
+⏔⏔⏔⏔⏔⏔ ෆ ⏔⏔⏔⏔⏔⏔
 
 Im Nachelle
 
