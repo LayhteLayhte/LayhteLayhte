@@ -13,9 +13,6 @@ im 15 year old!
 
 I like ur bear in animal 🐻 
 
-<img width="234" height="234" alt="Bear" src="https://github.com/user-attachments/assets/ddf55776-60a4-4446-9f9d-96847cdfb737" />
-
-
 playing in pt I in w2i , and hvy ! ! ^ _ ^
 
 ☆ .  * (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠)⁠✧⁠* . °. ｡⁠*⁠♡. ° . ｡ . * .
