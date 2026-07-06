@@ -17,4 +17,4 @@ playing in pt I in w2i , and hvy ! ! ^ _ ^
 
 ☆ .  * (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠)⁠✧⁠* . °. ｡⁠*⁠♡. ° . ｡ . * .
 
-<img width="239" height="120" alt="My Melody Pixel Sticker" src="https://github.com/user-attachments/assets/9bb4bde3-3c55-41c5-bc6b-38da0a2117c1" />
+<img width="192" height="220" alt="pony-town-@🦖check sign ata , offtab-applause2-blinking-padded-4x" src="https://github.com/user-attachments/assets/050ee15e-2c2a-40fb-b037-db221e89b5e6" />
