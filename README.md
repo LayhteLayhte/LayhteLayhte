@@ -10,15 +10,13 @@
 
 ˚ ₊ ✧┈➤ ${{\color{#BADCE0} Playing}}$ ${{\color{#BADCE0} Pony}}$ ${{\color{#BADCE0} Town}}$ ${{\color{#BADCE0} !}}$
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=29&duration=4000&pause=1000&color=C542F7&background=FFADCC00&center=true&vCenter=true&random=true&width=433&lines=Cuddle%2C+c%2Bh+%2C+and+w2i+!+!+!)](https://git.io/typing-svg)
 
- ˚ ₊
+˚ ₊
 
  ✧
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=29&duration=4000&pause=1000&color=C542F7&background=FFADCC00&center=true&vCenter=true&random=true&width=433&lines=Cuddle%2C+c%2Bh+%2C+and+w2i+!+!+!)](https://git.io/typing-svg)
-
- [pin](https://id.pinterest.com/LayhteLaya/_profile/_created/)  ${{\color{#B813D1} ✧}}$ 
-
+ ${{\color{#B813D1} ✧}}$ [pin](https://id.pinterest.com/LayhteLaya/_profile/_created/)  ${{\color{#B813D1} ✧}}$ [ata](https://layhte.atabook.org/) ${{\color{#B813D1} ✧}}$
 
 | ${{\color{#BADCE0} I}}$ ${{\color{#BADCE0} ship}}$ ${{\color{#B813D1} rexpop}}$  ${{\color{#BADCE0} and}}$ ${{\color{#B813D1} boxpop}}$ <img width="24" height="24" alt="9460be8fac3a33c3bf84410aa9f3af01" src="https://github.com/user-attachments/assets/0a1979d4-c054-44d6-8740-754651f06a87" /> |
  |------------------------------|
