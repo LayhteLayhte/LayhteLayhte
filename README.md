@@ -1,20 +1,17 @@
-<img width="639" height="338" alt="download (13)" src="https://github.com/user-attachments/assets/5a061527-aac1-4779-99d5-49dc1779c1c8" />
+![](https://komarev.com/ghpvc/?username=LayhteLayhte&style=plastic&color=6213BA&label=🦖)
+
+˚ ₊ ✧ ᭥ ${{\color{#BADCE0} I}}$ ${{\color{#BADCE0} Love}}$ ${{\color{#BADCE0} ur}}$ ${{\color{#B813D1} shelly}}$ 
+
+<img width="240" height="200" alt="28fe656ac96e1c64cf265c9399c15dde" src="https://github.com/user-attachments/assets/3dd8a419-a9fa-4c94-a216-cf2a39c28d79" />
 
 
-⏔⏔⏔⏔⏔⏔ ෆ ⏔⏔⏔⏔⏔⏔
 
-I Love ur shelly ! ! 
+˚ ₊ ✧┈➤ ${{\color{#BADCE0} Playing}}$ ${{\color{#BADCE0} Pony}}$ ${{\color{#BADCE0} Town}}$ ${{\color{#BADCE0} !}}$
 
-⏔⏔⏔⏔⏔⏔ ෆ ⏔⏔⏔⏔⏔⏔
+ 🇼‌2🇮‌ / c+h
 
-Im Nachelle
+ ˚ ₊
 
-im 15 year old!
+ ✧
 
-I like ur bear in animal 🐻 
-
-playing in pt I in w2i , and hvy ! ! ^ _ ^
-
-☆ .  * (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠)⁠✧⁠* . °. ｡⁠*⁠♡. ° . ｡ . * .
-
-<img width="192" height="220" alt="pony-town-@🦖check sign ata , offtab-applause2-blinking-padded-4x" src="https://github.com/user-attachments/assets/050ee15e-2c2a-40fb-b037-db221e89b5e6" />
+ [pin](https://id.pinterest.com/LayhteLaya/_profile/_created/)  ${{\color{#B813D1} ✧}}$ 
