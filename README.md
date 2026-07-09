@@ -28,5 +28,5 @@
  
  <br>
 
-  > dandy world's, digital circus, sonic, murder drone, animal hopistal, Alien stage/Zombie stage, pokemon, lego monkie kid, beatles, splatoon, mouthwashing, undertale, deltarune, and Poppy playtime
+  > dandy world's, digital circus, sonic, murder drone, animal hopistal, Alien stage/Zombie stage, pokemon, lego monkie kid, beatles, splatoon, mouthwashing, undertale, deltarune, Poppy playtime and monster high
 </details>
