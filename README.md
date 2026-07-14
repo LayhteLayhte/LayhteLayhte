@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=LayhteLayhte&style=plastic&color=6213BA&label=🦖)
+![](https://komarev.com/ghpvc/?username=LayhteLayhte&style=plastic&color=6213BA&label=witch)
 
 <img width="154" height="20" alt="blinkiesCafe-Bm" src="https://github.com/user-attachments/assets/6f97120a-3a73-4846-af7d-a6fec0f7c910" />
 
@@ -16,7 +16,7 @@
 
 ˚ ₊ ✧┈➤ ${{\color{#B813D1} Playing}}$ ${{\color{#B813D1} Pony}}$ ${{\color{#B813D1} Town}}$ ${{\color{#B813D1} !}}$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=500&size=21&duration=4999&pause=1000&color=662B95&background=080510&center=true&vCenter=true&width=435&lines=I'm+cuddle+%2C+w2i+and+c%2Bh!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=16&duration=4999&pause=1000&color=B813D1&vCenter=true&width=435&lines=playing+my+pony+town+Im+cuddle%2C+w2i+and+c%2Bh!)](https://git.io/typing-svg)
 
 ˚ ₊
 
