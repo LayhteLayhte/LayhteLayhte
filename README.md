@@ -37,7 +37,7 @@ ${{\color{#B813D1} fandom}}$ ${{\color{#B813D1} !!}}$</summary>
  
  <br>
 
-  > dandy world's, digital circus, sonic, murder drone, animal hopistal, Alien stage/Zombie stage, pokemon, lego monkie kid, beatles, splatoon, mouthwashing, undertale, deltarune, Poppy playtime, monster high, and spider-man across the spider verse
+  > dandy world's, digital circus, sonic, murder drone, animal hopistal, Alien stage/Zombie stage, pokemon, lego monkie kid, beatles, splatoon, mouthwashing, undertale, deltarune, Poppy playtime, monster high, spider-man across the spider verse, and adventure time
 </details>
 
 <img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/8cb65f92-1407-418c-96aa-b27bf17251f3" />
