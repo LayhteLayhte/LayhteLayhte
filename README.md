@@ -12,7 +12,7 @@
 <img width="20" height="20" alt="purple2" src="https://github.com/user-attachments/assets/a5cbade2-c73d-4e7d-ba99-83a1f050c47d" />
 
 
-˚ ₊ ✧┈➤ ${{\color{#B813D1} oomfie}}$ ${{\color{#B813D1} if}}$ ${{\color{#B813D1} I}}$ ${{\color{#B813D1} staying}}$ ${{\color{#B813D1} friend}}$ ${{\color{#B813D1} ...}}$
+˚ ₊ ✧┈➤ ${{\color{#B813D1} oomfie}}$ ${{\color{#B813D1} my}}$ ${{\color{#B813D1} pony}}$ ${{\color{#B813D1} town}}$ ${{\color{#B813D1} ...}}$
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=16&duration=4999&pause=1000&color=B813D1&vCenter=true&width=435&lines=playing+my+pony+town+Im+cuddle%2C+w2i+and+c%2Bh!)](https://git.io/typing-svg)
