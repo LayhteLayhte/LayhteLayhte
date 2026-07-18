@@ -1,50 +1,51 @@
-![](https://komarev.com/ghpvc/?username=LayhteLayhte&style=plastic&color=6213BA&label=witch)
-
-<img width="154" height="20" alt="blinkiesCafe-Bm" src="https://github.com/user-attachments/assets/6f97120a-3a73-4846-af7d-a6fec0f7c910" />
-
-˚ ₊ ✧ ᭥ ${{\color{#BADCE0} I}}$ ${{\color{#BADCE0} Love}}$ ${{\color{#BADCE0} ur}}$ ${{\color{#B813D1} shelly}}$ 
-
-<img width="240" height="200" alt="28fe656ac96e1c64cf265c9399c15dde" src="https://github.com/user-attachments/assets/c6991785-af7c-4b15-901c-6a3c6c3387e7" />
+![](https://komarev.com/ghpvc/?username=LayhteLayhte&color=F54EF5&label=🩷)
 
 
-─────── ${{\color{#B813D1} ꒰ ෆ ꒱}}$ ───────
+<img width="20" height="20" alt="de504a89" src="https://github.com/user-attachments/assets/bea3a489-412c-4baf-b86d-294dc7738058" /> ˚ ₊ ✧ ${{\color{#F54EF5} BUBBLEGUM}}$
 
-<img width="20" height="20" alt="purple2" src="https://github.com/user-attachments/assets/a5cbade2-c73d-4e7d-ba99-83a1f050c47d" />
+<img width="300" height="300" alt="bubblegum1" src="https://github.com/user-attachments/assets/fde9f2c1-e874-4c7a-961b-5cd4f706aaca" />
 
+─────── ${{\color{#F54EF5} ꒰ ෆ ꒱}}$ ───────
 
-˚ ₊ ✧┈➤ ${{\color{#B813D1} oomfie}}$ ${{\color{#B813D1} my}}$ ${{\color{#B813D1} pony}}$ ${{\color{#B813D1} town}}$ ${{\color{#B813D1} ...}}$
+˚ ₊ ✧ Layhte/Shelly
 
+˚ ₊ ✧ my 15 year old
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=16&duration=4999&pause=1000&color=B813D1&vCenter=true&width=435&lines=playing+my+pony+town+Im+cuddle%2C+w2i+and+c%2Bh!)](https://git.io/typing-svg)
+<img width="20" height="20" alt="LOVE" src="https://github.com/user-attachments/assets/cfb2ba5e-4965-4ac5-bef2-b58eadf5c440" /> ${{\color{#F54EF5} check}}$ [atabook](https://layhte.atabook.org/)
+
+─────── ${{\color{#F54EF5} ꒰ ෆ ꒱}}$ ───────
+
+<img width="20" height="20" alt="BOX" src="https://github.com/user-attachments/assets/90f66dd4-7bf5-4a6d-8b00-fcc9ae56c07c" /> ˚ ₊ ✧ ${{\color{#F54EF5} my}}$ ${{\color{#F54EF5} pony}}$ ${{\color{#F54EF5} town}}$ ${{\color{#F54EF5} oomfie}}$ ${{\color{#F54EF5} ...}}$
+
+<img width="20" height="20" alt="heartup" src="https://github.com/user-attachments/assets/1374225e-b472-4986-b220-999a6c6bca28" /> ${{\color{#F54EF5} im}}$ ${{\color{#F54EF5} cuddle}}$ ${{\color{#F54EF5} w2i}}$ ${{\color{#F54EF5} and}}$ ${{\color{#F54EF5} c+h}}$
 
 ˚ ₊
 
  ✧
 
-<img width="20" height="20" alt="purple" src="https://github.com/user-attachments/assets/e39efcf0-3d84-45d9-bd9c-dd8ef33d9290" />
+ ${{\color{#F54EF5} ✧}}$ [pin](https://id.pinterest.com/LayhteLaya/_profile/_created/)  ${{\color{#F54EF5} ✧}}$ ${{\color{#F54EF5} sorry}}$ ${{\color{#F54EF5} Im}}$ ${{\color{#F54EF5} private}}$ ${{\color{#F54EF5} on}}$ ${{\color{#F54EF5} the}}$ ${{\color{#F54EF5} pin}}$
 
-
- ${{\color{#B813D1} ✧}}$ [pin](https://id.pinterest.com/LayhteLaya/_profile/_created/)  ${{\color{#B813D1} ✧}}$
-
-| ${{\color{#BADCE0} I}}$ ${{\color{#BADCE0} ship}}$ ${{\color{#B813D1} rexpop}}$  ${{\color{#BADCE0} and}}$ ${{\color{#B813D1} boxpop}}$ <img width="24" height="24" alt="9460be8fac3a33c3bf84410aa9f3af01" src="https://github.com/user-attachments/assets/0a1979d4-c054-44d6-8740-754651f06a87" /> |
- |------------------------------|
-
- ✧˚ ₊ ✧   ‿  . ˚ 🦕.......
 
  <details closed>
-    <summary> <img width="20" height="20" alt="purple3" src="https://github.com/user-attachments/assets/4f550978-ac03-49cf-8b4e-c97e194e96c8" />
-${{\color{#B813D1} fandom}}$ ${{\color{#B813D1} !!}}$</summary>
+    <summary> <img width="23" height="23" alt="STARPINK" src="https://github.com/user-attachments/assets/8c7e328d-1fb2-468b-9149-74d2ee153429" />
+${{\color{#F54EF5} fandom}}$ ${{\color{#F54EF5} !!}}$</summary>
  
  <br>
+ 
+<img width="99" height="56" alt="stamp (11)" src="https://github.com/user-attachments/assets/6943461e-36cf-472a-ae91-9b84ab3d9ce1" />
+<img width="99" height="56" alt="stamp (10)" src="https://github.com/user-attachments/assets/1555e56c-ef86-4f97-9a03-3ee35d140887" />
+<img width="99" height="56" alt="stamp (9)" src="https://github.com/user-attachments/assets/faef0ec1-3811-467a-8f68-c86bd1ffeed5" />
+
 
   > dandy world's, digital circus, sonic, murder drone, animal hopistal, Alien stage/Zombie stage, pokemon, lego monkie kid, beatles, splatoon, mouthwashing, undertale, deltarune, Poppy playtime, monster high, spider-man across the spider verse, and adventure time
 </details>
 
-<img width="99" height="56" alt="stamp (3)" src="https://github.com/user-attachments/assets/8cb65f92-1407-418c-96aa-b27bf17251f3" />
-<img width="99" height="56" alt="stamp (2)" src="https://github.com/user-attachments/assets/ed1cd3f6-c773-4b14-a566-8f90e898260c" /> 
-<img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/bcf513f1-c0c0-456f-a59b-e4cde3b6625d" />
-<img width="99" height="56" alt="stamp (6)" src="https://github.com/user-attachments/assets/73482398-e406-4601-a0d6-b2c45e94971a" />
 
-${{\color{#B813D1} Im}}$ ${{\color{#B813D1} sign}}$ ${{\color{#B813D1} ata}}$ ${{\color{#B813D1} check}}$ ${{\color{#B813D1} to}}$ ${{\color{#B813D1} ata}}$
+<img width="68" height="18" alt="llc" src="https://github.com/user-attachments/assets/37c015bc-7776-41a6-bace-d7939b66a7dc" /> 
 
-[<img width="88" height="31" alt="ata" src="https://github.com/user-attachments/assets/164b1655-5eeb-40b1-b2e8-2217b7a8c4df" />](https://layhte.atabook.org/)
+<img width="50" height="18" alt="heart" src="https://github.com/user-attachments/assets/8268acb5-8f06-4c8c-9856-c25eaf598c06" /> 
+
+${{\color{#F54EF5} I}}$ ${{\color{#F54EF5} luv}}$ ${{\color{#F54EF5} bear}}$ ${{\color{#F54EF5} more}}$    
+
+<img width="99" height="56" alt="stamp (8)" src="https://github.com/user-attachments/assets/581a5c90-6bbe-4b98-982a-676c4a091e6c" />
+
