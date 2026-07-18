@@ -1,23 +1,45 @@
-![](https://komarev.com/ghpvc/?username=LayhteLayhte&color=F54EF5&label=🩷)
+<div align="center">
+<img src="https://komarev.com/ghpvc/?username=LayhteLayhte&color=F54EF5&label=🩷"/>
 
+<br>
 
-<img width="20" height="20" alt="de504a89" src="https://github.com/user-attachments/assets/bea3a489-412c-4baf-b86d-294dc7738058" /> ˚ ₊ ✧ ${{\color{#F54EF5} BUBBLEGUM}}$
-
+<p align="center"> 
+ <img src="https://maguro.carrd.co/assets/images/gallery01/de504a89.gif?v=6d27d80b">˚ ₊ ✧ ${{\color{#F54EF5} BUBBLEGUM}}$
+<br><br>
 <img width="300" height="300" alt="bubblegum1" src="https://github.com/user-attachments/assets/fde9f2c1-e874-4c7a-961b-5cd4f706aaca" />
-
-─────── ${{\color{#F54EF5} ꒰ ෆ ꒱}}$ ───────
-
+<br>
+<p align="center">  
+ ─────── ${{\color{#F54EF5} ꒰ ෆ ꒱}}$ ───────
+ 
+<br>
+ 
+<p align="center"> 
 ˚ ₊ ✧ Layhte/Shelly
 
+ <br>
+ 
+<p align="center"> 
 ˚ ₊ ✧ my 15 year old
 
-<img width="20" height="20" alt="LOVE" src="https://github.com/user-attachments/assets/cfb2ba5e-4965-4ac5-bef2-b58eadf5c440" /> ${{\color{#F54EF5} check}}$ [atabook](https://layhte.atabook.org/)
+<br>
 
+<p align="center"> 
+ <img src="https://yokai.crd.co/assets/images/gallery08/a02a4b96.gif?v=b4df531c"> ${{\color{#F54EF5} check}}$ 
+ &nbsp;
+ <a href="https://layhte.atabook.org/">atabook</a>
+
+ <br>
+
+<p align="center"> 
 ─────── ${{\color{#F54EF5} ꒰ ෆ ꒱}}$ ───────
+<br>
 
-<img width="20" height="20" alt="BOX" src="https://github.com/user-attachments/assets/90f66dd4-7bf5-4a6d-8b00-fcc9ae56c07c" /> ˚ ₊ ✧ ${{\color{#F54EF5} my}}$ ${{\color{#F54EF5} pony}}$ ${{\color{#F54EF5} town}}$ ${{\color{#F54EF5} oomfie}}$ ${{\color{#F54EF5} ...}}$
+<p align="center"> 
+ <img src="https://files.catbox.moe/4aqr12.gif"> 
+ ˚ ₊ ✧ ${{\color{#F54EF5} my}}$ ${{\color{#F54EF5} pony}}$ ${{\color{#F54EF5} town}}$ ${{\color{#F54EF5} oomfie}}$ ${{\color{#F54EF5} ...}}$
 
-<img width="20" height="20" alt="heartup" src="https://github.com/user-attachments/assets/1374225e-b472-4986-b220-999a6c6bca28" /> ${{\color{#F54EF5} im}}$ ${{\color{#F54EF5} cuddle}}$ ${{\color{#F54EF5} w2i}}$ ${{\color{#F54EF5} and}}$ ${{\color{#F54EF5} c+h}}$
+<p align="center"> 
+ <img src="https://yokai.crd.co/assets/images/gallery23/bc58ad36.gif?v=b4df531c"> ${{\color{#F54EF5} im}}$ ${{\color{#F54EF5} cuddle}}$ ${{\color{#F54EF5} w2i}}$ ${{\color{#F54EF5} and}}$ ${{\color{#F54EF5} c+h}}$
 
 ˚ ₊
 
@@ -48,4 +70,5 @@ ${{\color{#F54EF5} fandom}}$ ${{\color{#F54EF5} !!}}$</summary>
 ${{\color{#F54EF5} I}}$ ${{\color{#F54EF5} luv}}$ ${{\color{#F54EF5} bear}}$ ${{\color{#F54EF5} more}}$    
 
 <img width="99" height="56" alt="stamp (8)" src="https://github.com/user-attachments/assets/581a5c90-6bbe-4b98-982a-676c4a091e6c" />
+
 
