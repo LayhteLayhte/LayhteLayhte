@@ -1,11 +1,11 @@
 <div align="center">
 <img src="https://komarev.com/ghpvc/?username=LayhteLayhte&color=F54EF5&label=🩷"/>
-
 <br>
 
 <p align="center"> 
  <img src="https://maguro.carrd.co/assets/images/gallery01/de504a89.gif?v=6d27d80b">˚ ₊ ✧ ${{\color{#F54EF5} BUBBLEGUM}}$
- 
+<br>
+
 <br><br>
 <img width="300" height="300" alt="bubblegum1" src="https://github.com/user-attachments/assets/fde9f2c1-e874-4c7a-961b-5cd4f706aaca" />
 <br>
@@ -46,7 +46,9 @@
 
  ✧
 
- ${{\color{#F54EF5} ✧}}$ [pin](https://id.pinterest.com/LayhteLaya/_profile/_created/)  ${{\color{#F54EF5} ✧}}$ ${{\color{#F54EF5} sorry}}$ ${{\color{#F54EF5} Im}}$ ${{\color{#F54EF5} private}}$ ${{\color{#F54EF5} on}}$ ${{\color{#F54EF5} the}}$ ${{\color{#F54EF5} pin}}$
+ ${{\color{#F54EF5} ✧}}$ [pin](https://id.pinterest.com/LayhteLaya/_profile/_created/)  ${{\color{#F54EF5} ✧}}$
+ 
+ ${{\color{#F54EF5} sorry}}$ ${{\color{#F54EF5} Im}}$ ${{\color{#F54EF5} private}}$ ${{\color{#F54EF5} on}}$ ${{\color{#F54EF5} the}}$ ${{\color{#F54EF5} pin}}$
 
 
  <details closed>
