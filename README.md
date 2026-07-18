@@ -5,6 +5,7 @@
 
 <p align="center"> 
  <img src="https://maguro.carrd.co/assets/images/gallery01/de504a89.gif?v=6d27d80b">˚ ₊ ✧ ${{\color{#F54EF5} BUBBLEGUM}}$
+ 
 <br><br>
 <img width="300" height="300" alt="bubblegum1" src="https://github.com/user-attachments/assets/fde9f2c1-e874-4c7a-961b-5cd4f706aaca" />
 <br>
