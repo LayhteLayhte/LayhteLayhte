@@ -62,7 +62,7 @@ ${{\color{#F54EF5} fandom}}$ ${{\color{#F54EF5} !!}}$</summary>
 <img width="99" height="56" alt="stamp (9)" src="https://github.com/user-attachments/assets/faef0ec1-3811-467a-8f68-c86bd1ffeed5" />
 
 
-  > dandy world's, digital circus, sonic, murder drone, animal hopistal, Alien stage/Zombie stage, pokemon, lego monkie kid, beatles, splatoon, mouthwashing, undertale, deltarune, Poppy playtime, monster high, spider-man across the spider verse, and adventure time
+  > dandy world's, digital circus, sonic, murder drone, animal hopistal, Alien stage/Zombie stage, pokemon, lego monkie kid, beatles, splatoon, mouthwashing, undertale, deltarune, monster high, spider-man across the spider verse, adventure time, gravity falls, demon splayer, one pice, my little pony, The Disastrous Life of Saiki K, and jujutsu kaisen.
 </details>
 
 
