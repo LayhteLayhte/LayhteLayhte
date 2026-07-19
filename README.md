@@ -72,6 +72,5 @@ ${{\color{#F54EF5} fandom}}$ ${{\color{#F54EF5} !!}}$</summary>
 
 ${{\color{#F54EF5} I}}$ ${{\color{#F54EF5} luv}}$ ${{\color{#F54EF5} bear}}$ ${{\color{#F54EF5} more}}$    
 
-<img width="99" height="56" alt="stamp (8)" src="https://github.com/user-attachments/assets/581a5c90-6bbe-4b98-982a-676c4a091e6c" />
-
+<img width="90" height="33" alt="kitty" src="https://github.com/user-attachments/assets/ccf35728-56b1-4c6d-9957-ff73df5937fc" />
 
